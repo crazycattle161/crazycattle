@@ -74,3 +74,14 @@ The Impact of Survive the Chaos on Gaming Culture
 
 This game has sparked a wave of excitement in the gaming community, influencing trends and inspiring new formats.
 
+<a href="https://crazy-cattle.co/">Play now</a>
+
+<a href="https://www.youtube.com/@cattlecrazy-l2s">Youtube</a>
+
+<a href="https://www.instagram.com/crazy_cattle/">Instagram</a>
+
+<a href="https://www.facebook.com/crazycattle123">Facebook</a>
+
+<a href="https://www.tiktok.com/@cattlecrazy72">Tiktok</a>
+
+
